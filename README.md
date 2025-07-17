@@ -1,0 +1,1 @@
+# qazaqgazaimaq-redirect
